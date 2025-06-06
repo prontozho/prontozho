@@ -10,7 +10,7 @@
    
 　　　　　　　　　　　　　　Hi . ⠀Do ⠀try⠀ to ⠀refer ⠀to ⠀me ⠀as ⠀**Zho**⠀ mainly ,⠀ but ⠀anything⠀ works .
   
-  　　　　　　　　　　　　　　　　　　　　　　<sub>*I⠀ am ⠀what ⠀your ⠀first ⠀perception ⠀of me ⠀is .*</sub>
+  　　　　　　　　　　　　　　　　　　　　　　<sub>*I⠀ am ⠀what ⠀your ⠀first ⠀perception ⠀of ⠀me ⠀is .*</sub>
                            
 <p align="center"> <sub>✧</sub>
 
