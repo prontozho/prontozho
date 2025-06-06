@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/91e1b152-56e5-4234-a8e3-c3f4aac74c60)
+![Art by PL_Pickles](https://github.com/user-attachments/assets/91e1b152-56e5-4234-a8e3-c3f4aac74c60)
 　
 　
 　
