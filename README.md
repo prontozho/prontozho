@@ -1,4 +1,5 @@
-![Art by PL_Pickles](https://github.com/user-attachments/assets/91e1b152-56e5-4234-a8e3-c3f4aac74c60)
+
+![image](https://github.com/user-attachments/assets/91e1b152-56e5-4234-a8e3-c3f4aac74c60)
 　
 　
 　
@@ -16,3 +17,7 @@
 
 
 　　　　　　　　　　　I ⠀don't ⠀have⠀ anything ⠀to ⠀put ⠀here .⠀ I'm⠀ not ⠀on⠀ here⠀ often . ⠀Sign⠀ my ⠀[Atabook](https://sobertodeath.atabook.org/) .
+
+---
+
+<p align="center"> <sub>Art by @PL_Pickles</sub>
