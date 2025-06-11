@@ -8,15 +8,15 @@
    
    ---
    
-　　　　　　　　　　　　　　Hi . ⠀Do ⠀try⠀ to ⠀refer ⠀to ⠀me ⠀as ⠀**Zho**⠀ mainly ,⠀ but ⠀anything⠀ works .
+　　  　　　　  　　　　  　　　　Hi . ⠀Do ⠀try⠀ to ⠀refer ⠀to ⠀me ⠀as ⠀**Zho**⠀ mainly ,⠀ but ⠀anything⠀ works .
   
-  　　　　　　　　　　　　　　　　　　　　　　<sub>*I⠀ am ⠀what ⠀your ⠀first ⠀perception ⠀of ⠀me ⠀is .*</sub>
+  　　　　　　　　　　　　　　　　　　　　　  　　<sub>*I⠀ am ⠀what ⠀your ⠀first ⠀perception ⠀of ⠀me ⠀is .*</sub>
                            
-<p align="center"> <sub>✧</sub>
+  　  　<p align="center"> <sub>✧</sub>
 
 
 
-　　　　　　　　　　　I ⠀don't ⠀have⠀ anything ⠀to ⠀put ⠀here .⠀ I'm⠀ not ⠀on⠀ here⠀ often . ⠀Sign⠀ my ⠀[Atabook](https://sobertodeath.atabook.org/) .
+　　　　　　 　　  　　　 　　　　 　　　  　Sign ⠀or ⠀speak ⠀to ⠀me ⠀through⠀ my ⠀[Atabook](https://sobertodeath.atabook.org/) .
 
 ---
 
